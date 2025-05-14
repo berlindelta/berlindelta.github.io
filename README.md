@@ -1,4 +1,4 @@
-<center>contact: <url>https://cara.app/unvogel</url></center> 
+<center>contact: [cara](https://cara.app/unvogel)</center> 
 <br>
 
 Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
@@ -49,7 +49,7 @@ Mai 2020: Berliner Hörspielfestival: “30 Jahre Urknall” (Hörspiel)
 
 Oktober 2019: Novelle#8: “Fauna-Flora-Forschungsmythen” (Text)
 
-September 2019: Lange Nacht der Illustration: [bit.ly/wORTemap](http://bit.ly/wORTemap) (LandArt)
+September 2019: Lange Nacht der Illustration: [wORTemap](http://bit.ly/wORTemap) (LandArt)
 
 May 2019: Uckermärkischer Krimiwettbewerb: “Gesichter” (Kurzgeschichte/Lesung)
 
