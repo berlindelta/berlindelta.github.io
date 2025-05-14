@@ -1,11 +1,5 @@
-<<<<<<< HEAD
-contact: [cara](https://cara.app/unvogel)`
 
-=======
----
-layout: default
-title: Startseite berlindelta
----
+contact: [cara](https://cara.app/unvogel) - [pixelfed](https://pixelfed.social/noBird)
 
 
 Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
