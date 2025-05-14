@@ -1,3 +1,7 @@
+---
+layout: default
+title: Meine Seite
+---
 
 <p align="center">contact: [cara](https://cara.app/unvogel) - [pixelfed](https://pixelfed.social/noBird)</p>
 
