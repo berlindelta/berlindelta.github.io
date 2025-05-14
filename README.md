@@ -1,4 +1,4 @@
-<center>contact: <a href="https://cara.app/unvogel">cara</a></center>
+<center>contact: <a href="https://cara.app/unvogel">cara</a> - <a href="https://pixelfed.social/noBird">pixelfed</a></center>
 <br>
 
 Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
