@@ -1,6 +1,3 @@
-contact: [cara](https://cara.app/unvogel) - [pixelfed](https://pixelfed.social/noBird)
-
-### contact: [cara](https://cara.app/unvogel) - [pixelfed](https://pixelfed.social/noBird)
 ## contact: [cara](https://cara.app/unvogel) - [pixelfed](https://pixelfed.social/noBird)
 
 
