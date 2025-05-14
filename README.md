@@ -1,3 +1,8 @@
+---
+layout: default
+title: Startseite berlindelta
+---
+
 <center>contact: <a href="https://cara.app/unvogel">cara</a> - <a href="https://pixelfed.social/noBird">pixelfed</a> </center>
 <br>
 
