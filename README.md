@@ -1,22 +1,22 @@
 
-<center><strong>berlindelta presents: <a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird)" target=_blank>pixelfed</a></strong></center>
+<center><strong>berlindelta presents: <a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird" target=_blank>pixelfed</a></strong></center>
 <br>
 <br>
 Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
 <br>
 
-Oktober 2024: Ausstellung Kulturpalast Wedding: “Schallwellenfragmentforschung” (Zeichnung, Buch im Eigenverlag, Lesung)
+Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/blog/grenzen-uebergaenge-visionen-heft-29-erscheint-ende-oktober/" target=_blank>Ausstellung Kulturpalast Wedding</a>: “Schallwellenfragmentforschung” (Zeichnung, Buch im Eigenverlag, Lesung)
 
-Oktober 2024: prolog 29: “Acht der 64 Varianten der räumlichen Dimensionen könnten Zugänge zu Wurmlöchern zu anderen Universen sein” (Zeichung)
+Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/blog/heftkiosk/" target=_blank>prolog 29</a> “Acht der 64 Varianten der räumlichen Dimensionen könnten Zugänge zu Wurmlöchern zu anderen Universen sein” (Zeichung)
 
-Juni 2024: prolog Edition 24.02.2024: “Dokumentation Platz der Vereinten Nationen 23-32” (Stempel und Linoldruck)
+Juni 2024: <a href="https://prolog-zeichnung-und-text.de/blog/edition-24-4-24-erscheint/" target=_blank>prolog Edition 24.02.2024</a>: “Dokumentation Platz der Vereinten Nationen 23-32” (Stempel und Linoldruck)
 
 Juni 2024: Finale Raum on Demand - Katalogbeitrag “Superstrukturen” (Werkfoto)
 
-Januar 2024: Studio im Hochhaus (Lesung)
+Januar 2024: Studio im Hochhaus: <a href="https://archive.org/details/prolog-001" target=_blank>(Lesung)</a>
 
 
-Dezember 2023: prolog 27: “Wir sind die Menschheit” (Pustefarbe)
+Dezember 2023: <a href="https://prolog-zeichnung-und-text.de/blog/prolog-nr-27-bedingungslos/" target=_blank>prolog 27: “Wir sind die Menschheit” (Pustefarbe)
 
 Dezember 2023: ioLux Ausstellung: “Wir sind die Menschheit” (Pustefarbe) und “Superstruktur” (Zeichnung)
 
@@ -50,7 +50,7 @@ Mai 2020: Berliner Hörspielfestival: “30 Jahre Urknall” (Hörspiel)
 
 Oktober 2019: Novelle#8: “Fauna-Flora-Forschungsmythen” (Text)
 
-September 2019: Lange Nacht der Illustration: <a href="https://bit.ly/wORTemap)" target=_blank>wORTemap</a>(LandArt)
+September 2019: Lange Nacht der Illustration: <a href="https://bit.ly/wORTemap)" target=_blank>wORTemap</a> (LandArt)
 
 May 2019: Uckermärkischer Krimiwettbewerb: “Gesichter” (Kurzgeschichte/Lesung)
 
