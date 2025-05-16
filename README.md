@@ -24,7 +24,8 @@ Dezember 2023: LOT1 Werkschau: Zwei Welterklärungen (Zeichnungen)
 
 Oktober 2023: Raum on Demand: “Superstruktur” (Einzelausstellung)
 
-August 2023: Bunte Stube Ahrenshop - “NAHaufNAHmen” (Einzelausstellung)
+August 2023: <a href="https://www.fremdenverkehrsverein-wustrow.de/events/detail/id/115995" target=_blank>Bunte Stube Ahrenshop</a>: “NAHaufNAHmen” (Einzelausstellung)
+
 
 Juli 2023: Hörspielsommer Leipzig: “Etwas ist anders” (Kurzhörspiel)
 
