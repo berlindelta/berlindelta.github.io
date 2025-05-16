@@ -7,7 +7,7 @@ Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
 
 Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/blog/grenzen-uebergaenge-visionen-heft-29-erscheint-ende-oktober/" target=_blank>Ausstellung Kulturpalast Wedding</a>: “Schallwellenfragmentforschung” (Zeichnung, Buch im Eigenverlag, Lesung)
 
-Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/blog/grenzen-uebergaenge-visionen-heft-29-erscheint-ende-oktober/" target=_blank>prolog 29</a>: “Acht der 64 Varianten der räumlichen Dimensionen könnten Zugänge zu Wurmlöchern zu anderen Universen sein” (Zeichung)
+Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/menuvlnr2.html" target=_blank>prolog 29</a>: “Acht der 64 Varianten der räumlichen Dimensionen könnten Zugänge zu Wurmlöchern zu anderen Universen sein” (Zeichung)
 
 Juni 2024: <a href="https://prolog-zeichnung-und-text.de/blog/edition-24-4-24-erscheint/" target=_blank>prolog Edition 24.02.2024</a>: “Dokumentation Platz der Vereinten Nationen 23-32” (Stempel und Linoldruck)
 
@@ -16,25 +16,27 @@ Juni 2024: Finale Raum on Demand - <a href="https://online.fliphtml5.com/ucdjp/p
 Januar 2024: Studio im Hochhaus: <a href="https://archive.org/details/prolog-001" target=_blank>(Lesung)</a>
 
 
-Dezember 2023: <a href="https://prolog-zeichnung-und-text.de/blog/prolog-nr-27-bedingungslos/" target=_blank>prolog 27</a>: “Wir sind die Menschheit” (Pustefarbe)
+Dezember 2023: <a href="https://prolog-zeichnung-und-text.de/menuvlnr2.html" target=_blank>prolog 27</a>: “Wir sind die Menschheit” (Pustefarbe)
 
-Dezember 2023: ioLux Ausstellung: “Wir sind die Menschheit” (Pustefarbe) und “Superstruktur” (Zeichnung)
+Dezember 2023: ioLux <a href="https://prolog-zeichnung-und-text.de/blog/prolog-nr-27-bedingungslos/" target=_blank>Ausstellung</>: “Wir sind die Menschheit” (Pustefarbe) und “Superstruktur” (Zeichnung)
 
 Dezember 2023: LOT1 Werkschau: Zwei Welterklärungen (Zeichnungen)
 
-Oktober 2023: Raum on Demand: “Superstruktur” (Einzelausstellung)
+Oktober 2023: <a href="https://franziskaharnisch.de/site-specific/raum-on-demand/" target=_blank>Raum on Demand</a>: “Superstruktur” (Einzelausstellung)
+
+
 
 August 2023: <a href="https://www.fremdenverkehrsverein-wustrow.de/events/detail/id/115995" target=_blank>Bunte Stube Ahrenshop</a>: “NAHaufNAHmen” (Einzelausstellung)
 
 
 Juli 2023: Hörspielsommer Leipzig: “Etwas ist anders” (Kurzhörspiel)
 
-Juni 2023: ioLux Ausstellung “Diesen Hinweis Ignorieren” (Pustefarbe) und “Superstruktur” (Zeichnung)
+Juni 2023: ioLux <a href="https://prolog-zeichnung-und-text.de/blog/kunstkiosk-und-release-vom-16-bis-19-juni-2023/" target=_blank>Ausstellung</>: “Diesen Hinweis Ignorieren” (Pustefarbe) und “Superstruktur” (Zeichnung)
 
-Juni 2023: prolog 26: “Weisses Rauschen” (Kurzgeschichte) und “Superstruktur” (Zeichung)
+Juni 2023: <a href="https://prolog-zeichnung-und-text.de/blog/prolog-nr-26-hell-und-dunkel/" target=_blank>prolog 26</a>: “Weisses Rauschen” (Kurzgeschichte) und “Superstruktur” (Zeichung)
 
 
-Juli 2022: Dabiil Pashkoff Preis: “Bona Fides” (Gedicht)
+Juli 2022: Daniil Pashkoff Preis: “Bona Fides” (Gedicht)
 
 Mai 2022: Werkschau LOT1: vier mal “Superstruktur” (Zeichnungen)
 
