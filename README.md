@@ -1,4 +1,6 @@
-<center><strong>contact: <a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird)" target=_blank>pixelfed</a></strong></center>
+
+<center><strong>berlindelta presents: <a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird)" target=_blank>pixelfed</a></strong></center>
+
 
 Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
 
