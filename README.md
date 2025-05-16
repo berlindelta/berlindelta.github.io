@@ -3,7 +3,7 @@
 <br>
 <br>
 Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
-<br>
+
 
 Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/blog/grenzen-uebergaenge-visionen-heft-29-erscheint-ende-oktober/" target=_blank>Ausstellung Kulturpalast Wedding</a>: “Schallwellenfragmentforschung” (Zeichnung, Buch im Eigenverlag, Lesung)
 
