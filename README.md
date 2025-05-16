@@ -3,7 +3,7 @@
 <br>
 <br>
 Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
-
+<br>
 
 Oktober 2024: Ausstellung Kulturpalast Wedding: “Schallwellenfragmentforschung” (Zeichnung, Buch im Eigenverlag, Lesung)
 
