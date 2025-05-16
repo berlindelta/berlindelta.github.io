@@ -50,7 +50,7 @@ Mai 2020: Berliner Hörspielfestival: “30 Jahre Urknall” (Hörspiel)
 
 Oktober 2019: Novelle#8: “Fauna-Flora-Forschungsmythen” (Text)
 
-September 2019: Lange Nacht der Illustration: [wORTemap](http://bit.ly/wORTemap) (LandArt)
+September 2019: Lange Nacht der Illustration: <a href="https://bit.ly/wORTemap)" target=_blank>wORTemap</a>(LandArt)
 
 May 2019: Uckermärkischer Krimiwettbewerb: “Gesichter” (Kurzgeschichte/Lesung)
 
