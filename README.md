@@ -1,9 +1,7 @@
-
-<center><strong>berlindelta presents: <a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird" target=_blank>pixelfed</a></strong></center>
+<center><strong><a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird" target=_blank>pixelfed</a></strong></center>
 <br>
 <br>
-Mai 2025: Artspring Kunstspaziergang “Wir sind die Menschheit” (LandArt)
-
+Mai 2025: Artspring <a href="https://www.artspring.berlin/veranstaltung/vernissage-gartenanlage-bornholm-i-ii/" target=_blank>Kunstspaziergang</a> “Wir sind die Menschheit” (LandArt)
 
 Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/blog/grenzen-uebergaenge-visionen-heft-29-erscheint-ende-oktober/" target=_blank>Ausstellung Kulturpalast Wedding</a>: “Schallwellenfragmentforschung” (Zeichnung, Buch im Eigenverlag, Lesung)
 
@@ -33,7 +31,8 @@ Juni 2023: ioLux <a href="https://prolog-zeichnung-und-text.de/blog/kunstkiosk-u
 Juni 2023: <a href="https://prolog-zeichnung-und-text.de/blog/prolog-nr-26-hell-und-dunkel/" target=_blank>prolog 26</a>: “Weisses Rauschen” (Kurzgeschichte) und “Superstruktur” (Zeichung)
 
 
-Juli 2022: Daniil Pashkoff Preis: “Bona Fides” (Gedicht)
+Juli 2022: <a href="https://www.amazon.com/Bayonet-Light-Stephanie-Lammers/dp/3949894985#:~:text=The%20Daniil%20Pashkoff%20Prize%202022%20for%20Creative%20Writing%20in%20English,is%20organised%20by%20Writers%20Ink." target=_blank>Daniil Pashkoff Preis</a>: “Bona Fides” (Gedicht)
+
 
 Mai 2022: Werkschau LOT1: vier mal “Superstruktur” (Zeichnungen)
 
