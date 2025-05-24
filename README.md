@@ -1,7 +1,7 @@
 <center><strong><a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird" target=_blank>pixelfed</a></strong></center>
 <br>
 <br>
-Mai 2025: Artspring <a href="https://www.artspring.berlin/veranstaltung/vernissage-gartenanlage-bornholm-i-ii/" target=_blank>Kunstspaziergang</a> “Wir sind die Menschheit” (LandArt)
+Mai 2025: Artspring <a href="https://www.artspring.berlin/veranstaltung/vernissage-gartenanlage-bornholm-i-ii/" target=_blank>Kunstspaziergang</a> “<a href="https://bit.ly/Menschheitsstein" target=_blank>Wir sind die Menschheit</a>” (LandArt)
 
 Oktober 2024: <a href="https://prolog-zeichnung-und-text.de/blog/grenzen-uebergaenge-visionen-heft-29-erscheint-ende-oktober/" target=_blank>Ausstellung Kulturpalast Wedding</a>: “Schallwellenfragmentforschung” (Zeichnung, Buch im Eigenverlag, Lesung)
 
