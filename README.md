@@ -49,7 +49,7 @@ Mai 2020: Berliner Hörspielfestival: “30 Jahre Urknall” (Hörspiel)
 
 Oktober 2019: Novelle#8: “Fauna-Flora-Forschungsmythen” (Text)
 
-September 2019: Lange Nacht der Illustration: <a href="https://bit.ly/wORTemap)" target=_blank>wORTemap</a> (LandArt)
+September 2019: Lange Nacht der Illustration: <a href="https://bit.ly/wORTemap" target=_blank>wORTemap</a> (LandArt)
 
 May 2019: Uckermärkischer Krimiwettbewerb: “Gesichter” (Kurzgeschichte/Lesung)
 
@@ -108,7 +108,7 @@ November 2009: Skyto Poetry Movement: “NoBody in Soweto” (Kurzgeschichte/Les
 
 August 2009: Kommz Slam: “Empirisches Manifest” (Lesung)
 
-Juli 2009: Risse im Beton - Anthologie: “Risse im Beton” (Kurzgeschichte)
+Juli 2009: <a href="https://www.amazon.de/Risse-Beton-Das-Beste-MDR-Literaturwettbewerb/dp/3867890897" target=_blank>Risse im Beton - Anthologie</a>: “Risse im Beton” (Kurzgeschichte)
 
 Juni 2009: Junge Akademie Preisfrage: “Die Denkmaschine” (Kurzgeschichte)
 
