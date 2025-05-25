@@ -76,7 +76,7 @@ November 2013: Audio Project “<a href="https://soundcloud.com/user-80311930/se
 
 Februar 2013: “<a href="https://www.amazon.de/Sonntagstrasse-Berlin-Norbert-Herrmann-ebook/dp/B00BF7QGF0" target=_blank>Sonntagstrasse, Berlin</a>” (Novelle im Eigenverlag)
 
-Januar 2013: 151 Südafrika - Anthologie: "Crocodile" (Kurzgeschichte)
+Januar 2013: <a href="https://www.amazon.de/S%C3%BCdafrika-151-Portrait-wandelnden-Momentaufnahmen/dp/3943176185" target=_blank>151 Südafrika - Anthologie</a>: "Crocodile" (Kurzgeschichte)
 
 November 2012: Bibliothek der Kurzprosa - Anthologie: “Kein Job wie jeder andere” (Kurzgeschichte)
 
@@ -104,7 +104,6 @@ Juli 2009: <a href="https://www.amazon.de/Risse-Beton-Das-Beste-MDR-Literaturwet
 
 Juni 2009: Junge Akademie Preisfrage: “Die Denkmaschine” (Kurzgeschichte)
 
-
 Oktober 2008: Asphaltspuren 10 Anthologie: “Black and Night mit Friedrich Hain” (Foto-Story)
 
 Juli 2008: Hörspielsommer: “Ping Pong” (Hörspiel)
@@ -117,6 +116,6 @@ Oktober 2007: <a href="https://www.amazon.de/Mein-Feind-Geschichten-besonderen-B
 
 Juni 2007: Junge Akademie Preisfrage: “Wie es dazu kam dass ich mich neulich entschied” (Kurzgeschichte)
 
-März 2007: Hörspielzentrale 13: (Hörspiel)
+März 2007: Hörspielzentrale 13: "50 Cent" (Hörspiel)
 
 Januar 2007: Kampf der Künste: “Ping Pong” (Lesung)
