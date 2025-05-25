@@ -56,7 +56,8 @@ July 2017: itch creative journal: "<a href="https://www.itch.co.za/component/k2/
 
 Oktober 2016: Lange Nacht der Illustration: “Stadtzebra” (Kurzgeschichte/Lesung)
 
-Mai 2016: Anthologisch: Bilder der Freiheit: “Das Erntedank-Protokoll” (Kurzgeschichte)
+Mai 2016: <a href="https://www.amazon.de/Bilder-Freiheit-internationalen-Logisch-Literaturpreis/dp/3945961017" target=_blank>Anthologisch: Bilder der Freiheit</a>: “Das Erntedank-Protokoll” (Kurzgeschichte)
+
 
 Mai 2016: Lyrikmond: "<a href="https://www.lyrikmond.de/gedichte-thema-6-39.php#1645" target=_blank>Lucky im Park</a>“ (Gedicht)
 
