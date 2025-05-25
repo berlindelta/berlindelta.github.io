@@ -48,21 +48,21 @@ Mai 2020: <a href="https://hoerspielkritik.de/11-berliner-hoerspielfestival-21-2
 
 Oktober 2019: Novelle#8: “Fauna-Flora-Forschungsmythen” (Text)
 
-September 2019: Lange Nacht der Illustration: <a href="https://bit.ly/wORTemap" target=_blank>wORTemap</a> (LandArt)
+September 2019: Lange Nacht der Illustration: "<a href="https://bit.ly/wORTemap" target=_blank>wORTemap</a>" (LandArt)
 
 May 2019: <a href="https://www.amazon.de/Tatort-Uckermark-Uckerm%C3%A4rkischen-Regionalkrimi-Wettbewerb-Ausgezeichnet/dp/3946815243" target=_blank>Uckermärkischer Krimiwettbewerb</a>: “Gesichter” (Kurzgeschichte/Lesung)
 
-July 2017: itch creative journal: <a href="https://www.itch.co.za/component/k2/item/1975-contemporary-foolery" target=_blank>Contemporary Foolery (Gedicht)</a>
+July 2017: itch creative journal: "<a href="https://www.itch.co.za/component/k2/item/1975-contemporary-foolery" target=_blank>Contemporary Foolery</a>" (Gedicht)
 
 Oktober 2016: Lange Nacht der Illustration: “Stadtzebra” (Kurzgeschichte/Lesung)
 
 Mai 2016: Anthologisch: Bilder der Freiheit: “Das Erntedank-Protokoll” (Kurzgeschichte)
 
-Mai 2016: Lyrikmond: <a href="https://www.lyrikmond.de/gedichte-thema-6-39.php#1645" target=_blank>Lucky im Park (Gedicht)</a>“” (Gedicht)
+Mai 2016: Lyrikmond: "<a href="https://www.lyrikmond.de/gedichte-thema-6-39.php#1645" target=_blank>Lucky im Park</a>“ (Gedicht)
 
-April 2016: itch creative journal: <a href="https://www.itch.co.za/component/k2/item/1611-egolizing" target=_blank>eGolizing (Gedicht)</a>
+April 2016: itch creative journal: "<a href="https://www.itch.co.za/component/k2/item/1611-egolizing" target=_blank>eGolizing</a>" (Gedicht)
 
-Oktober 2015: <a href="https://www.amazon.de/Black-White-Schwarz-auf-Wei%C3%9F/dp/373865562X" target=_blank>Black and White</a> - Buchvorstellung (Eigenverlag/BoD) mit Enikö Gömöri
+Oktober 2015: "<a href="https://www.amazon.de/Black-White-Schwarz-auf-Wei%C3%9F/dp/373865562X" target=_blank>Black and White</a>" - Buchvorstellung (Eigenverlag/BoD) mit Enikö Gömöri
 
 Juni 2015: Hörspielsommer Leipzig: “Appetit” (Hörspiel)
 
@@ -81,12 +81,12 @@ Januar 2013: 151 Südafrika -Anthologie: Crocodile (Kurzgeschichte)
 
 November 2012: Bibliothek der Kurzprosa - Anthologie: “Kein Job wie jeder andere” (Kurzgeschichte)
 
-September 2012: Lange Nacht der Illustration: Tuneplaces Johannesburg (Lesung)
+September 2012: Lange Nacht der Illustration: "Tuneplaces Johannesburg" (Lesung)
 
 Februar 2012: Federwelt-Zeitschrift: “Howzit” (Essay)
 
 
-September 2011: Itch creative journal: <a href="https://www.itch.co.za/component/k2/item/617-day-of-reconciliation" target=_blank>Day of reconciliation</a> ” (Kurzgeschichte)
+September 2011: Itch creative journal: "<a href="https://www.itch.co.za/component/k2/item/617-day-of-reconciliation" target=_blank>Day of reconciliation</a>” (Kurzgeschichte)
 
 Juli 2010: Mahala 3-Texte: “Crocodile” (Kurzgeschichte)
 
