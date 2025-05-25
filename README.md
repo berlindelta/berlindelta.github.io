@@ -44,8 +44,7 @@ Juni 2021: Malstoff-Ausstellung “Alles/Nichts - Nichts/Alles” - Vier “Supe
 
 November 2020: Malstoff Ausstellung “Kratzer in der Kruste” - Neun Welterklärungen (Zeichnungen) und neun Pustewörter
 
-Mai 2020: Berliner Hörspielfestival: “30 Jahre Urknall” (Hörspiel)
-
+Mai 2020: <a href="https://hoerspielkritik.de/11-berliner-hoerspielfestival-21-24-mai-2020-livestream/" target=_blank>Berliner Hörspielfestival</a>: “30 Jahre Urknall” (Hörspiel)
 
 Oktober 2019: Novelle#8: “Fauna-Flora-Forschungsmythen” (Text)
 
