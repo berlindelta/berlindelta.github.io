@@ -80,7 +80,7 @@ Januar 2013: 151 Südafrika - Anthologie: "Crocodile" (Kurzgeschichte)
 
 November 2012: Bibliothek der Kurzprosa - Anthologie: “Kein Job wie jeder andere” (Kurzgeschichte)
 
-September 2012: Lange Nacht der Illustration: "Tuneplaces Johannesburg" (Lesung)
+September 2012: Lange Nacht der Illustration: "<a href="https://artrica.wordpress.com/" target=_blank>artrica / tuneplaces Johannesburg</a>" (Lesung)
 
 Februar 2012: Federwelt-Zeitschrift: “Howzit” (Essay)
 
