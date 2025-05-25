@@ -65,20 +65,18 @@ April 2016: itch creative journal: "<a href="https://www.itch.co.za/component/k2
 
 Oktober 2015: "<a href="https://www.amazon.de/Black-White-Schwarz-auf-Wei%C3%9F/dp/373865562X" target=_blank>Black and White</a>" - Buchvorstellung (Eigenverlag/BoD) mit Enikö Gömöri
 
-Juni 2015: Hörspielsommer Leipzig: “Appetit” (Hörspiel)
+Juni 2015: <a href="https://hoerspielsommer-verein.de/wettbewerbe/veroeffentlichungen/" target=_blank>Hörspielsommer Leipzig</a>: “Appetit” (Hörspiel)
 
 
-Oktober 2014: Der zwölfte Mann (Anthologie): Champions League (Kurzgeschichte)
+Oktober 2014: <a href="https://www.amazon.de/12-Mann-Stefanie-Steudemann/dp/3956800109" target=_blank>Der zwölfte Mann</a> (Anthologie): "Champions League" (Kurzgeschichte)
 
-April 2014: Itch creative journal: “Don’t talk about it” (Kurzgeschichte)
+April 2014: Itch creative journal: “<a href="https://www.itch.co.za/component/k2/item/991-breathing" target=_blank>Don’t talk about it</a>” (Kurzgeschichte)
 
+November 2013: Audio Project “<a href="https://soundcloud.com/user-80311930/sets/sky-to-radio" target=_blank>Radio-Not</a>” - "Wir Poeten", "Disclosure" (Poetry-Takes)
 
-November 2013: Audio Project “Radio-Not” - "Wir Poeten", "Disclosure" (Poetry-Takes)
+Februar 2013: “<a href="https://www.amazon.de/Sonntagstrasse-Berlin-Norbert-Herrmann-ebook/dp/B00BF7QGF0" target=_blank>Sonntagstrasse, Berlin</a>” (Novelle im Eigenverlag)
 
-Februar 2013: Sonntagstrasse, Berlin (Buch im Eigenverlag)
-
-Januar 2013: 151 Südafrika -Anthologie: Crocodile (Kurzgeschichte)
-
+Januar 2013: 151 Südafrika - Anthologie: "Crocodile" (Kurzgeschichte)
 
 November 2012: Bibliothek der Kurzprosa - Anthologie: “Kein Job wie jeder andere” (Kurzgeschichte)
 
@@ -86,19 +84,17 @@ September 2012: Lange Nacht der Illustration: "Tuneplaces Johannesburg" (Lesung)
 
 Februar 2012: Federwelt-Zeitschrift: “Howzit” (Essay)
 
-
 September 2011: Itch creative journal: "<a href="https://www.itch.co.za/component/k2/item/617-day-of-reconciliation" target=_blank>Day of reconciliation</a>” (Kurzgeschichte)
 
-Juli 2010: Mahala 3-Texte: “Crocodile” (Kurzgeschichte)
+Juli 2010: Mahala-Texte: “Crocodile” (Kurzgeschichte)
 
-Dezember 2010: Mahala-texte: “My Shoes” (Kurzgeschichte)
+Dezember 2010: Mahala-Texte: “My Shoes” (Kurzgeschichte)
 
-Juni 2010: Poetry Slam Orange Farm: Wir Poeten (Gedicht/Lesung)
+Juni 2010: Poetry Slam Orange Farm: "Wir Poeten" (Gedicht/Lesung)
 
-April 2010: Carapace 78 - Poetry: “Saturday Morning” (Gedicht)
+April 2010: <a href="https://carapacepoetry.co.za/" target=_blank>Carapace</a> 78 - Poetry: “Saturday Morning” (Gedicht)
 
-Februar 2010: Itch creative journal: “Ask Jack” (Kurzgeschichte)
-
+Februar 2010: Itch creative journal: “<a href="https://www.itch.co.za/component/k2/item/311-ask-jack" target=_blank>Ask Jack</a>” (Kurzgeschichte)
 
 November 2009: Skyto Poetry Movement: “NoBody in Soweto” (Kurzgeschichte/Lesung)
 
@@ -115,10 +111,9 @@ Juli 2008: Hörspielsommer: “Ping Pong” (Hörspiel)
 
 Juli 2008: Junge Akademie Preisfrage: “Traumspuren” (acht Grafiken, ein Essay)
 
-April 2008: Plopp Hörspielwettbewerb: “Errata” (Hörspiel)
+April 2008: <a href="https://hoerspiele.dra.de/detailansicht/4985944" target=_blank>Plopp Hörspielwettbewerb</a>: “Errata” (Hörspiel)
 
-
-Oktober 2007: Buchjournal: “Mein Feind” (Kurzgeschichte)
+Oktober 2007: <a href="https://www.amazon.de/Mein-Feind-Geschichten-besonderen-Beziehung/dp/3833485876" target=_blank>Buchjournal Mein Feind</a>: "Die Niete” (Kurzgeschichte)
 
 Juni 2007: Junge Akademie Preisfrage: “Wie es dazu kam dass ich mich neulich entschied” (Kurzgeschichte)
 
