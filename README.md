@@ -46,7 +46,7 @@ November 2020: Malstoff Ausstellung “Kratzer in der Kruste” - Neun Welterkl�
 
 Mai 2020: <a href="https://hoerspielkritik.de/11-berliner-hoerspielfestival-21-24-mai-2020-livestream/" target=_blank>Berliner Hörspielfestival</a>: “30 Jahre Urknall” (Hörspiel)
 
-Oktober 2019: Novelle#8: “Fauna-Flora-Forschungsmythen” (Text)
+Oktober 2019: Novelle#8: “<a href="https://novelle.wtf/fauna-flora-forschungsmythen/" target=_blank>Fauna-Flora-Forschungsmythen</a>” (Text)
 
 September 2019: Lange Nacht der Illustration: "<a href="https://bit.ly/wORTemap" target=_blank>wORTemap</a>" (LandArt)
 
