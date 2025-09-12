@@ -52,6 +52,8 @@ September 2019: Lange Nacht der Illustration: "<a href="https://bit.ly/wORTemap"
 
 May 2019: <a href="https://www.amazon.de/Tatort-Uckermark-Uckerm%C3%A4rkischen-Regionalkrimi-Wettbewerb-Ausgezeichnet/dp/3946815243" target=_blank>Uckermärkischer Krimiwettbewerb</a>: “Gesichter” (Kurzgeschichte/Lesung)
 
+since 2017: "<a href="https://himmelueberberlin.travel.blog/" target=_blank>HimmelUeberBerlin</a>" (Foto-Dokumentations-Blog)
+
 July 2017: itch creative journal: "<a href="https://www.itch.co.za/component/k2/item/1975-contemporary-foolery" target=_blank>Contemporary Foolery</a>" (Gedicht)
 
 Oktober 2016: Lange Nacht der Illustration: “Stadtzebra” (Kurzgeschichte/Lesung)
