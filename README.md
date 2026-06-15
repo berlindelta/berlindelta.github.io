@@ -2,6 +2,7 @@
 <br>
 <br>
 Juni 2026: <a href="https://www.instagram.com/fassadengallerieeinsb" target=_blank>Fassadengallerie EINS B</a>: <a href="https://linktr.ee/allesnichts" target=_blank>Circularity 01</a>
+
 Mai 2026: Artspring <a href="https://www.artspring.berlin/kunstspaziergang-2026/" target=_blank>Kunstspaziergang</a> (<a href="https://www.ardmediathek.de/video/der-tag-in-berlin-und-brandenburg/artspring-festival-bringt-kunst-zu-den-menschen/rbb/Y3JpZDovL3JiYl82Yzc4ZGE3YS01NDAzLTRjZjEtYTYyMS1lYzM2M2ViMTMzYjJfcHVibGljYXRpb24/" target=_blank>TV</a>) “<a href="https://maps.app.goo.gl/XZuq1xTpmRiGLhC9A" target=_blank>Denkschwelle</a>” (LandArt)
 
 Mai 2025: Artspring <a href="https://www.artspring.berlin/kunstspaziergang-2025/" target=_blank>Kunstspaziergang</a> “<a href="https://bit.ly/Menschheitsstein" target=_blank>Wir sind die Menschheit</a>” (LandArt)
