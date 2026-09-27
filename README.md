@@ -1,6 +1,8 @@
 <center><strong><a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird" target=_blank>pixelfed</a> - <a href="https://mastodon.art/@NoBird" target=_blank>mastodon.art</a></strong></center>
 <br>
 <br>
+September 2026: <a href="https://prolog-zeichnung-und-text.de/blog/heftkiosk/" target=_blank>prolog 30 "ver>rückt</a>: "<a href="https://photos.app.goo.gl/JbHfdSjTrYe1GuvD8" target=_blank>Der Ring des Kapitalismus (Zeichnung)</a>"
+
 Juni 2026: <a href="https://www.instagram.com/fassadengallerieeinsb" target=_blank>Fassadengallerie EINS B</a>: "<a href="https://linktr.ee/allesnichts" target=_blank>Circularity 01</a>" (SunArt)
 
 Mai 2026: Artspring <a href="https://www.artspring.berlin/kunstspaziergang-2026/" target=_blank>Kunstspaziergang</a> (<a href="https://www.ardmediathek.de/video/der-tag-in-berlin-und-brandenburg/artspring-festival-bringt-kunst-zu-den-menschen/rbb/Y3JpZDovL3JiYl82Yzc4ZGE3YS01NDAzLTRjZjEtYTYyMS1lYzM2M2ViMTMzYjJfcHVibGljYXRpb24/" target=_blank>TV</a>) “<a href="https://maps.app.goo.gl/XZuq1xTpmRiGLhC9A" target=_blank>Denkschwelle</a>” (LandArt)
