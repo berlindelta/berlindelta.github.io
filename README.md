@@ -1,6 +1,9 @@
 <center><strong><a href="https://cara.app/unvogel" target=_blank>cara</a> - <a href="https://pixelfed.social/noBird" target=_blank>pixelfed</a> - <a href="https://mastodon.art/@NoBird" target=_blank>mastodon.art</a></strong></center>
 <br>
 <br>
+
+September-Oktober 2026: iolux <a href="https://iolux.de/alle-latten-am-zaun-26-sep-bis-24-okt-2026-verrueckt-prolog-nr-30/" target=_blank>Ausstellung Alle Latten am Zaun</a>: "<a href="https://photos.app.goo.gl/M7JvsAFmKNyoYPXAA" target=_blank>Resonanzkäfig (Installation mit Zeichnungen)</a>"
+
 September 2026: <a href="https://prolog-zeichnung-und-text.de/blog/heftkiosk/" target=_blank>prolog 30 "ver>rückt</a>: "<a href="https://photos.app.goo.gl/JbHfdSjTrYe1GuvD8" target=_blank>Der Ring des Kapitalismus (Zeichnung)</a>"
 
 Juni 2026: <a href="https://www.instagram.com/fassadengallerieeinsb" target=_blank>Fassadengallerie EINS B</a>: "<a href="https://linktr.ee/allesnichts" target=_blank>Circularity 01</a>" (SunArt)
